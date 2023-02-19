@@ -2,6 +2,9 @@
 
 **(© 2022 GitHub) CopyRight of this script is for one shop community**
 
+**🎉 One Shop TEBEX:**<br>
+<a href="https://oneshop.tebex.io">ONE SHOP TEBEX</a>
+
 **🥰 One Shop DISCORD:**<br>
 <a href="https://discord.gg/9HumDzMusA">ONE SHOP COMMUNITY</a>
 
